@@ -2,7 +2,7 @@
 Lot's wife
  - "what's life?" is an existential conundrum
  - "Lot's wife" is a spoonerism of "what's life"
- - this is a reference to a bible story in which Lot's wife is turned into a pillar of salt
+ - this is a reference to a bible story in which Lot's wife is turned into a pillar (column) of salt
 
 Sydney Morning Herald, Fri 2020-09-18, DA
 
